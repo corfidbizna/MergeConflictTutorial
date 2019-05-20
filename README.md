@@ -40,3 +40,7 @@ The dragon-goat waved his hand dismissively, "Ah, phooey. That's what she gets g
 
 Meanwhile, King Mickey laughed mechanically in the distance. 
 
+This is totally the setup for the story of how King Mickey has been replace by an evil Robot-Mickey.
+
+And then they all went to sleep, right there, in the middle of the road.
+
