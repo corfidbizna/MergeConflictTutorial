@@ -44,21 +44,20 @@ Meanwhile, King Mickey laughed maniachally in the distance.
 
 One day, when Sora, Dragon-Goat, and Goofy were walking down the road, they passed a green dinosaur walking opposite them. 
 
-On closer inspection, the dinosaur wasn't actually walking *towards* them, but just marched in place facing down the road. 
+On closer inspection, the dinosaur wasn't actually walking *towards* them, but just marched in place facing down the road.  
 
 Sora waved at the dinosaur, jogging up to it so as to greet it properly. Before he could say anything, he noticed that the dinosaur was emitting a pleasant melody had a nice little rhythm. It was to this melody that the dinosaur was marching. 
 
 The dragon-goat and Goofy caught up to Sora. 
 
-"Hello there? What's that you're doing in the middle of the road?" asked Dragon-Goat.  
+"Hello there? What's that you're doing in the middle of the road?" asked Dragon-Goat. 
 
-The green dinosaur suddenly opened its mouth. The sound it made carried no meaning, but it seemed melodious as if it was singing along to the phantom song
+The green dinosaur suddenly opened its mouth. The sound it made carried no meaning, but it seemed melodious as if it was singing along to the phantom song. 
 
-The three friends looked at each other, confused. 
+The three friends looked at each other, confused.  
 
 The sound the green dinosaur made with its throat seemed to… never cease. It just kept holding that note, marching to the beat of the song. 
 
 Sora looked at Dragon-Goat, who looked at Goofy, who looked at Sora, then Sora looked at Goofy, then he at Dragon-Goat, then he at Sora, and they all nodded. 
 
-They left the singing(?) dinosaur alone and continued on their way. 
-
+They left the singing(?) dinosaur alone and continued on their way.  
