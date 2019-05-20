@@ -38,7 +38,11 @@ King Mickey, in his haste to get back to the castle, crashed into the Pink Witch
 
 The dragon-goat waved his hand dismissively, "Ah, phooey. That's what she gets getting in the way of His Majesty, King Mickey."
 
-Meanwhile, King Mickey laughed maniachally in the distance. 
+Meanwhile, King Mickey laughed mechanically in the distance. 
+
+This is totally the setup for the story of how King Mickey has been replace by an evil Robot-Mickey.
+
+And then they all went to sleep, right there, in the middle of the road.
 
 ## The Green Dinosaur 
 
