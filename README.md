@@ -61,3 +61,15 @@ The sound the green dinosaur made with its throat seemed to… never cease. It 
 Sora looked at Dragon-Goat, who looked at Goofy, who looked at Sora, then Sora looked at Goofy, then he at Dragon-Goat, then he at Sora, and they all nodded. 
 
 They left the singing(?) dinosaur alone and continued on their way.  
+
+As they continued down the road, they found a long string of white eggs with green circular splotches on them. 
+
+Some of the eggs had been shattered and lay besides debris of various things, as though they were thrown violently at them. 
+
+Other eggs were bouncing vigorously. 
+
+Dragon-Goat picked up one of the bouncing eggs and accidently crushed it (which is why he's no longer allowed in Little Chef's bistro in Twilight Town). The egg was completely hollow, despite its earlier movement. He threw the shattered remains of the eggshell to the ground, exclaiming loudly in an incoherent fassion. 
+
+The lone-held note from the green dinosaur at this point seemed like a haunting wail having been held breathlessly for so long.
+
+Dragon-Goat, Sora, and Goofy decided the best place to be was Not Here™, so they took off down the road as fast as their varying-sized legs would carry them. 
