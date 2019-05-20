@@ -26,7 +26,7 @@ Sora frowned. "You're gonna have to keep on going," he said. "How else are we al
 
 ## The Pink Witch
 
-One day the dragon-goat and Goofy were walking down the road, when they were suddenly approached by a witch in a pink hat and cloak. She smiled at them and said "Hello!". The dragon-goat and Goofy said "Hello" to the pink witch, and continued on their way.
+One day the dragon-goat and Goofy were walking down the road, when they were suddenly approached by a witch in a pink hat and cloak. She smiled at them and said, "Hello!". The dragon-goat and Goofy said "Hello" to the pink witch, and continued on their way.
 
 "That witch sure was pink!" said the dragon-goat. Then he sneezed.
 
@@ -34,4 +34,9 @@ King Mickey drove past them all on a vespa. Everyone was surprised. Especially X
 
 King Mickey, in his haste to get back to the castle, crashed into the Pink Witch with a "KERSPLOW-BA-BOOOM!"
 
-"Oh no! The Pink Witch!" shouted the dragon-goat.
+"Oh no! The Pink Witch!" shouted the Goofy.
+
+The dragon-goat waved his hand dismissively, "Ah, phooey. That's what she gets getting in the way of His Majesty, King Mickey."
+
+Meanwhile, King Mickey laughed maniachally in the distance. 
+
