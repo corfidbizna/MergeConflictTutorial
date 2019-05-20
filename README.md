@@ -20,6 +20,12 @@ This made the dragon-goat's life worth living, even though half his friends (tho
 
 One day the dragon-goat and Goofy were walking down the road, when they were suddenly approached by a witch in a pink hat and cloak. She smiled at them and said "Hello!". The dragon-goat and Goofy said "Hello" to the pink witch, and continued on their way.
 
-"That witch sure was pink!" said the dragon-goat.
+"That witch sure was pink!" said the dragon-goat. Then he sneezed.
 
 King Mickey drove past them all on a vespa. Everyone was surprised. Especially Xehanort.
+
+"I don't wanna practice anymore!" said the dragon-goat.
+
+Sora frowned. "You're gonna have to keep on going," he said. "How else are we all gonna learn?"
+
+"Ahh, phooey!" said the dragon-goat.
