@@ -34,7 +34,7 @@ King Mickey drove past them all on a vespa. Everyone was surprised. Especially X
 
 King Mickey, in his haste to get back to the castle, crashed into the Pink Witch with a "KERSPLOW-BA-BOOOM!"
 
-"Oh no! The Pink Witch!" shouted the Goofy.
+"Oh no! The Pink Witch!" shouted Sora.
 
 The dragon-goat waved his hand dismissively, "Ah, phooey. That's what she gets getting in the way of His Majesty, King Mickey."
 
