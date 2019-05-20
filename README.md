@@ -18,6 +18,8 @@ The dragon-goat's other friend—a tall, lanky dog named Goofy—was never mean 
 
 This made the dragon-goat's life worth living, even though half his friends (though half of two is very small) thought he wasn't doing good enough. 
 
-One day the dragon-goat and Goofy were walking down the road, when they were suddenly approached by a witch in a pink hat and cloak. She smiled at them and said "Hello!". The dragon-goat and Goofy said "Hello" to the pink Witch, and continued on their way.
+One day the dragon-goat and Goofy were walking down the road, when they were suddenly approached by a witch in a pink hat and cloak. She smiled at them and said "Hello!". The dragon-goat and Goofy said "Hello" to the pink witch, and continued on their way.
 
-"That witch sure was Pink!" said the dragon-goat.
+"That witch sure was pink!" said the dragon-goat.
+
+King Mickey drove past them all on a vespa. Everyone was surprised.
