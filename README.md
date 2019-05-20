@@ -22,4 +22,4 @@ One day the dragon-goat and Goofy were walking down the road, when they were sud
 
 "That witch sure was pink!" said the dragon-goat.
 
-King Mickey drove past them all on a vespa. Everyone was surprised.
+King Mickey drove past them all on a vespa. Everyone was surprised. Especially Xehanort.
