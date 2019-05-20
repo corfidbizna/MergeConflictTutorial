@@ -1,4 +1,4 @@
-# MergeConflictTutorial
+# The Story of the dragon-goat, Goofy, and the Pink Witch
 
 Once upon a time, there was a angry-faced dragon-goat.
 
