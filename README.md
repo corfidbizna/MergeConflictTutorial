@@ -40,3 +40,16 @@ The dragon-goat waved his hand dismissively, "Ah, phooey. That's what she gets g
 
 Meanwhile, King Mickey laughed maniachally in the distance. 
 
+## The Green Dinosaur 
+
+One day, when Sora, the dragon-goat, and Goofy were walking down the road, they passed a green dinosaur walking opposite them. 
+
+On closer inspection, the dinosaur wasn't actually walking *towards* them, but just marched in place facing down the road. 
+
+Sora waved at the dinosaur, jogging up to it so as to greet it properly. Before he could say anything, he noticed that the dinosaur was emitting a pleasant melody had a nice little rhythm. It was to this melody that the dinosaur was marching. 
+
+The dragon-goat and Goofy caught up to Sora and were just as confused as he. 
+
+The green dinosaur suddenly opened its mouth as if to contfibute vocals to the lovely melody, but as it made the lovely sound in its throat it seemed to… never cease. It just kept holding that note, marching to the beat of the song it was emitting. 
+
+Our trio decided it was best to leave the green dinosaur alone, and continued on their way. 
