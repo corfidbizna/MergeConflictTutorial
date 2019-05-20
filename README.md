@@ -1,4 +1,4 @@
-# The Story of the dragon-goat, Sora, and the Pink Witch
+# The Story of the dragon-goat, Sora, Goofy, and the Pink Witch
 
 Once upon a time, there was a angry-faced dragon-goat.
 
@@ -12,7 +12,7 @@ This dragon-goat had a friend. A tall, anime-ish person. This person was silly, 
 
 Sora constantly berated the dragon-goat for not dishing out enough healing spells during battle, even though the dragon-goat was doing a darn good job at it. 
 
-The dragon-goat's other friend—a tall, lanky dog named Sora—was never mean to the dragon-goat and was always giving compliments. 
+The dragon-goat's other friend—a tall, lanky dog named Goofy—was never mean to the dragon-goat and was always giving compliments. 
 
 "You're doin' great, a-hyuck," he would say. "Thanks, pal!"
 
